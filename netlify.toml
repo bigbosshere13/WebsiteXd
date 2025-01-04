@@ -1,0 +1,9 @@
+[build]
+  publish = "public"  # The directory where Hugo outputs your site
+  command = "hugo"  # The build command to run Hugo
+
+[build.environment]
+  HUGO_VERSION = "0.140.2"  # Optional: Specify a specific Hugo version (if needed)
+
+[context.production.environment]
+  HUGO_ENV = "production"  # Set the Hugo environment for production
