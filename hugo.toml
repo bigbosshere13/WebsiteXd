@@ -1,4 +1,4 @@
-baseURL = 'http://anexample.org'
+baseURL = 'https://huubdigital.netlify.app'
 languageCode = 'en-us'
 title = 'Screw titles.'
 theme = 'bearblog'
