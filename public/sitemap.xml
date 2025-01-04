@@ -2,29 +2,29 @@
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9"
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   <url>
-    <loc>https://example.org/</loc>
+    <loc>http://localhost:1313/</loc>
     <lastmod>2024-12-10T14:51:03+01:00</lastmod>
   </url><url>
-    <loc>https://example.org/blogmenu/</loc>
+    <loc>http://localhost:1313/blogmenu/</loc>
     <lastmod>2024-12-10T14:51:03+01:00</lastmod>
   </url><url>
-    <loc>https://example.org/hobbiesmenu/</loc>
+    <loc>http://localhost:1313/hobbiesmenu/</loc>
     <lastmod>2024-12-10T14:51:03+01:00</lastmod>
   </url><url>
-    <loc>https://example.org/links/</loc>
+    <loc>http://localhost:1313/links/</loc>
     <lastmod>2024-12-10T14:51:03+01:00</lastmod>
   </url><url>
-    <loc>https://example.org/portfoliomenu/</loc>
+    <loc>http://localhost:1313/portfoliomenu/</loc>
     <lastmod>2024-12-10T14:51:03+01:00</lastmod>
   </url><url>
-    <loc>https://example.org/wall/</loc>
+    <loc>http://localhost:1313/wall/</loc>
     <lastmod>2024-12-10T14:51:03+01:00</lastmod>
   </url><url>
-    <loc>https://example.org/secret/</loc>
+    <loc>http://localhost:1313/secret/</loc>
     <lastmod>2024-12-10T14:30:49+01:00</lastmod>
   </url><url>
-    <loc>https://example.org/categories/</loc>
+    <loc>http://localhost:1313/categories/</loc>
   </url><url>
-    <loc>https://example.org/tags/</loc>
+    <loc>http://localhost:1313/tags/</loc>
   </url>
 </urlset>
