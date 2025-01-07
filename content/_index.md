@@ -4,7 +4,7 @@ draft = false
 title = 'About'
 +++
 
-# Welcome to the About Page
+# Welcome to the about page
 ### My name is *Huub*, and I thought it would be good to create a website to document all the ***AMAZING*** things I've done on planet earth.
 
 #### But in all seriousness, this website is mostly for myself as a sort of archive/diary, feel free to get to know me a little (better) by reading along though!
@@ -20,5 +20,6 @@ title = 'About'
     * *Wall with randomly chosen gifs/images, just for fun.*
 * [Links!](/links/)
     * *Links to the many different account I have.*
+
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
