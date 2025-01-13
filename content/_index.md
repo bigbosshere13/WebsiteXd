@@ -10,8 +10,8 @@ title = 'About'
 #### But in all seriousness, this website is mostly for myself as a sort of archive/diary, feel free to get to know me a little (better) by reading along though!
 #### There are 5 pages on this website, I'll list them here.    
 
-* [The blog!](/blogmenu/)
-    * *Blog posts about random stuff, or just things I'm thinking about.*
+* Blog posts
+    * *Blog posts will be under this message, sorted by time.*
 * [My portfolio!](/portfoliomenu/)
     * *Page with some stuff I've made, sorted by most recent.*
 * [Hobbies!](/hobbiesmenu/)
