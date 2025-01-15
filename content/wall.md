@@ -6,6 +6,8 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### 🕷️🐞🪲🐝🪳🐜🦗🪱🪰🦟🐌🐛🦎🦀🦐🦋🦇 every insect (Reference) 15/01/25
+##### Scary. 14/01/25
 ##### If only more days were as active as this one, I feel energized (which means I feel great). 13/01/25
 ##### If anyone wants to ask me to help for a project (preferably pc related), please do! 12/01/25
 ##### Nvm, forget what I said, weekends suck. 11/01/25
