@@ -6,6 +6,11 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### It's a party somewhere else. 20/01/25
+##### Recovery? 19/01/25
+##### Dread. 🔨💩 18/01/25
+##### I should watch more netflix, I love it. 17/01/25
+##### No news, pure quiet, have a rest. 🕙 16/01/25
 ##### 🕷️🐞🪲🐝🪳🐜🦗🪱🪰🦟🐌🐛🦎🦀🦐🦋🦇 every insect (Reference) 15/01/25
 ##### Scary. 14/01/25
 ##### If only more days were as active as this one, I feel energized (which means I feel great). 13/01/25
