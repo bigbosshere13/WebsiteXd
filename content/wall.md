@@ -6,6 +6,7 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### So uhh and uhh and you know about the thing where I uhh. 21/01/25
 ##### It's a party somewhere else. 20/01/25
 ##### Recovery? 19/01/25
 ##### Dread. 🔨💩 18/01/25
