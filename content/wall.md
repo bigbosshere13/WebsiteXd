@@ -6,6 +6,8 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Lough tuck! 🎈 25/01/25
+##### The plant doesn't reach the sealing yet. 24/01/25
 ##### Icehead! 23/01/25
 ##### 📔📕📖📗📘📙📚 Alot of reading info today!!!!. 22/01/25
 ##### So uhh and uhh and you know about the thing where I uhh. 21/01/25
