@@ -6,7 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
-##### Three day streak! 27/01/25
+##### Arts are cool, I should make some! 31/01/25
+##### EPIC GAMER ROCK SPORE 2007 FUNNY GUY COMPILATION HEAVY ROCK DEATH ROCK ⭐⭐⭐⭐ 30/01/25 
+##### And it was going so well 🙍‍♂️🙍‍♂️🙍‍♂️🙍‍♂️🙍‍♂️ 29/01/25 
+##### Do you prefer Bouhezza or Kemariya 28/01/25 
 ##### I made a dish today, it was great. 26/01/25
 ##### Lough tuck! 🎈 25/01/25
 ##### The plant doesn't reach the sealing yet. 24/01/25
