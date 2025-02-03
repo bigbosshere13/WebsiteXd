@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### All the energy in my veinssssss. 03/02/25
+##### Wow, i revitalized? 02/02/25
+##### Month flew by, but, not really. ⁉️ 01/02/25
 ##### Arts are cool, I should make some! 31/01/25
 ##### EPIC GAMER ROCK SPORE 2007 FUNNY GUY COMPILATION HEAVY ROCK DEATH ROCK ⭐⭐⭐⭐ 30/01/25 
 ##### And it was going so well 🙍‍♂️🙍‍♂️🙍‍♂️🙍‍♂️🙍‍♂️ 29/01/25 
