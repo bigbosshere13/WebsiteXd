@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### ⏳⌛ continuation of yesterday. 06/02/25
+##### ⌛⏳ 05/02/25
+##### Sigma xd. 04/02/25
 ##### All the energy in my veinssssss. 03/02/25
 ##### Wow, i revitalized? 02/02/25
 ##### Month flew by, but, not really. ⁉️ 01/02/25
