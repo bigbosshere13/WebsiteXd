@@ -6,6 +6,8 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Feel like a swamp. 08/02/25
+##### Sports!. 07/02/25
 ##### ⏳⌛ continuation of yesterday. 06/02/25
 ##### ⌛⏳ 05/02/25
 ##### Sigma xd. 04/02/25
