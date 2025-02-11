@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### My golden age of music! 💽 11/02/25
+##### Positive energy! 10/02/25
+##### I wish I could exit this swamp xd, it's not that funny anymore. 09/02/25
 ##### Feel like a swamp. 08/02/25
 ##### Sports!. 07/02/25
 ##### ⏳⌛ continuation of yesterday. 06/02/25
