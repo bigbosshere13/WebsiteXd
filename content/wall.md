@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Sniper elite is alot like hitman, kinda weirdly similar? 14/02/25
+##### Energy levels quite literally flipped 🔋🪫 13/02/25
+##### Mental deconstruction mode activatos 12/02/25
 ##### My golden age of music! 💽 11/02/25
 ##### Positive energy! 10/02/25
 ##### I wish I could exit this swamp xd, it's not that funny anymore. 09/02/25
