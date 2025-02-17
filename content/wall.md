@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### I uninstalled RimWorld. Probably a bad idea though. 17/02/25
+##### This day was really just a more lame yesterday 🤷‍♂️ 16/02/25
+##### Today I played RimWorld for 7 hours, I scare myself sometimes. 15/02/25
 ##### Sniper elite is alot like hitman, kinda weirdly similar? 14/02/25
 ##### Energy levels quite literally flipped 🔋🪫 13/02/25
 ##### Mental deconstruction mode activatos 12/02/25
