@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### I' m gonna play rimworld, time to start a slave colony! 20/02/25
+##### The talk was crazy good for me. 19/02/25
+##### Yes, I' m guilty, I bought rimworld for 50 euros. AND WHAT ARE YOU GONNA DO ABOUT IT! 😜. 18/02/25
 ##### I uninstalled RimWorld. Probably a bad idea though. 17/02/25
 ##### This day was really just a more lame yesterday 🤷‍♂️ 16/02/25
 ##### Today I played RimWorld for 7 hours, I scare myself sometimes. 15/02/25
