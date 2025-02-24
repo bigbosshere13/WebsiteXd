@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Typing cursus was completely forgotten, whoops. 24/02/25
+##### Vacation extermination. 23/02/25
+##### Vacation preparation. 22/02/25
+##### I should own up to the owning, get owned! 21/02/25
 ##### I' m gonna play rimworld, time to start a slave colony! 20/02/25
 ##### The talk was crazy good for me. 19/02/25
 ##### Yes, I' m guilty, I bought rimworld for 50 euros. AND WHAT ARE YOU GONNA DO ABOUT IT! 😜. 18/02/25
