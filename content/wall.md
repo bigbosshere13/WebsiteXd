@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### LUXURIOUS RIM ⭐. 27/02/25
+##### Miserable Rim. 26/02/25
+##### Chess! ♟️ 25/02/25
 ##### Typing cursus was completely forgotten, whoops. 24/02/25
 ##### Vacation extermination. 23/02/25
 ##### Vacation preparation. 22/02/25
