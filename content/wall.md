@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### He went on the shopping spree again, who could've seen that coming!?. 02/03/25
+##### I feel like I'll get bored of the rim soon. 01/03/25
+##### Rimworld addiction? I kinda hate myself, but life is for having fun right? 28/02/25
 ##### LUXURIOUS RIM ⭐. 27/02/25
 ##### Miserable Rim. 26/02/25
 ##### Chess! ♟️ 25/02/25
