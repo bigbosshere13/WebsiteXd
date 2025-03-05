@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Homework backdrop. 05/03/25
+##### Half of the people left!! . 04/03/25
+##### One of these days I'll do something again. 03/03/25
 ##### He went on the shopping spree again, who could've seen that coming!?. 02/03/25
 ##### I feel like I'll get bored of the rim soon. 01/03/25
 ##### Rimworld addiction? I kinda hate myself, but life is for having fun right? 28/02/25
