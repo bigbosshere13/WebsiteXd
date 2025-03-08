@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### The achievements are coming.... Have faith... 🏆 08/03/25
+##### Begeleiding? 07/03/25
+##### ⏸️⏱️🚲😥. 06/03/25
 ##### Homework backdrop. 05/03/25
 ##### Half of the people left!! . 04/03/25
 ##### One of these days I'll do something again. 03/03/25
