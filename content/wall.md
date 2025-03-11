@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Hey so, you knew the project had to be delivered tommorow right, right? 11/03/25
+##### I wondah how hes doan in that lowsay school 🔊🔊 10/03/25
+##### Excited for tommorow, oh wait. 09/03/25
 ##### The achievements are coming.... Have faith... 🏆 08/03/25
 ##### Begeleiding? 07/03/25
 ##### ⏸️⏱️🚲😥. 06/03/25
