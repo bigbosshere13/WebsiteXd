@@ -6,6 +6,8 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Literally me when I don't know the test content and I still ace 😏 13/03/25
+##### ⬇️ Foolish, only 4 people had actually done it, AND SHE DIDN'T EVEN CARE! 12/03/25
 ##### Hey so, you knew the project had to be delivered tommorow right, right? 11/03/25
 ##### I wondah how hes doan in that lowsay school 🔊🔊 10/03/25
 ##### Excited for tommorow, oh wait. 09/03/25
