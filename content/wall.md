@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Kut toetsweek gevoel kut kut kut 16/03/25
+##### Worst day of the week lowkey 15/03/25
+##### No dancing luckily, piano! 🎹 14/03/25
 ##### Literally me when I don't know the test content and I still ace 😏 13/03/25
 ##### ⬇️ Foolish, only 4 people had actually done it, AND SHE DIDN'T EVEN CARE! 12/03/25
 ##### Hey so, you knew the project had to be delivered tommorow right, right? 11/03/25
