@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### SO much toetsweek optimism it's crazy. 19/03/25
+##### SMP met August! 18/03/25
+##### Presentation Festivitation 🛹 17/03/25
 ##### Kut toetsweek gevoel kut kut kut 16/03/25
 ##### Worst day of the week lowkey 15/03/25
 ##### No dancing luckily, piano! 🎹 14/03/25
