@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### The Minecraft loneliness, you wouldn't understand... 23/03/25
+##### I feel great feeling like shit. 22/03/25
+##### Toetsweek is actually vacation, she's right. 21/03/25
+##### This changed me. ⭐ 20/03/25
 ##### SO much toetsweek optimism it's crazy. 19/03/25
 ##### SMP met August! 18/03/25
 ##### Presentation Festivitation 🛹 17/03/25
