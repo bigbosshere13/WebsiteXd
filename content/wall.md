@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Field of hopes and dreams is now the field of copes and screams. 27/03/25
+##### IM TELLING YOU DELTARUNE TOMMOROW, SET YOUR ALARM. 🕰️ 26/03/25
+##### End of the test week? 25/03/25
+##### What am I ment to say, it went well? 24/03/25
 ##### The Minecraft loneliness, you wouldn't understand... 23/03/25
 ##### I feel great feeling like shit. 22/03/25
 ##### Toetsweek is actually vacation, she's right. 21/03/25
