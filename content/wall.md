@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Teenage mood swings are a real thing. 30/03/25
+##### I hate wasting my tiiiiiime. 29/03/25
+##### Thing to tell her ig. 28/03/25
 ##### Field of hopes and dreams is now the field of copes and screams. 27/03/25
 ##### IM TELLING YOU DELTARUNE TOMMOROW, SET YOUR ALARM. 🕰️ 26/03/25
 ##### End of the test week? 25/03/25
