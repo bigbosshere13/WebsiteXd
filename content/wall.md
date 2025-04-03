@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Wow, okay, Deltarune is real! (tbh sad it's gonna take so long 😔) 03/04/25
+##### Deltarune tommorow I'm calling it guys (cope). 02/04/25
+##### Literally just waiting for tommorow, glad the conclusion is settled. 01/04/25
+##### Can this day just *HURRY UP* MAN ⏱️⏱️ 31/03/25
 ##### Teenage mood swings are a real thing. 30/03/25
 ##### I hate wasting my tiiiiiime. 29/03/25
 ##### Thing to tell her ig. 28/03/25
