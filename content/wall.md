@@ -6,6 +6,12 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### I just hope I'll have the courage to not be lazy someday 😔. 09/04/25
+##### Talk went great, I hope I can start tommorow tommorow! 08/04/25
+##### New start, feeling fresh! *did not try tommorow though* 07/04/25
+##### Funny how the typing course just got ABANDONED, I'll try tommorow. 06/04/25
+##### I hope stuff gets better man. 05/04/25
+##### Why did I skip! 04/04/25
 ##### Wow, okay, Deltarune is real! (tbh sad it's gonna take so long 😔) 03/04/25
 ##### Deltarune tommorow I'm calling it guys (cope). 02/04/25
 ##### Literally just waiting for tommorow, glad the conclusion is settled. 01/04/25
