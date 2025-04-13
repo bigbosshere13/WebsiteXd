@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### The wait for monday keeps going! 13/04/25
+##### Boskus 12/04/25
+##### No social energy today man! 😭 11/04/25
+##### Sad that she didn't make it happen, we'll see. 10/04/25
 ##### I just hope I'll have the courage to not be lazy someday 😔. 09/04/25
 ##### Talk went great, I hope I can start tommorow tommorow! 08/04/25
 ##### New start, feeling fresh! *did not try tommorow though* 07/04/25
