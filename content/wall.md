@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Project tommorow, don't know how to feel! 16/04/25
+##### So I'm going? I love impulses. 15/04/25
+##### We are so back 💫 14/04/25
 ##### The wait for monday keeps going! 13/04/25
 ##### Boskus 12/04/25
 ##### No social energy today man! 😭 11/04/25
