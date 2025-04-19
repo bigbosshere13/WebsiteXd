@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### Flint and steel! 19/04/25
+##### When you know what the correct things to do are and you don't do them... 18/04/25
+##### Mid. 17/04/25
 ##### Project tommorow, don't know how to feel! 16/04/25
 ##### So I'm going? I love impulses. 15/04/25
 ##### We are so back 💫 14/04/25
