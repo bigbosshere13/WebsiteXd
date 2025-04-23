@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### The days are starting to blur together... 23/04/25
+##### I swear I'm gonna do some mad wublin/amber island stuff when I'm all alone at the park. 🔥⚡ 22/04/25
+##### *It's aaaaall arouuuund. 💦* 🌲 21/04/25
+##### When can I go back to school? 20/04/25
 ##### Flint and steel! 19/04/25
 ##### When you know what the correct things to do are and you don't do them... 18/04/25
 ##### Mid. 17/04/25
