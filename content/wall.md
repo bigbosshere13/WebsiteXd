@@ -6,6 +6,9 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+##### There'll be a pause for a while, which starts NOW 🔘📺 26/04/25
+##### Hachoo! (first viveine) 🤧🌲💃 25/04/25
+##### Breeding charts were made. 24/04/25
 ##### The days are starting to blur together... 23/04/25
 ##### I swear I'm gonna do some mad wublin/amber island stuff when I'm all alone at the park. 🔥⚡ 22/04/25
 ##### *It's aaaaall arouuuund. 💦* 🌲 21/04/25
