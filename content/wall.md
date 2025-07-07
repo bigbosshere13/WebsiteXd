@@ -6,6 +6,80 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 6 juli I'm pro at EToH? I beat 2 ADVANCED towers today. Proudnessmaxing frfr.
+#### 5 juli I had so much fun in a VC today, they were beating the knight without the mantle. GOD i love people. 🗣
+#### 4 juli Xzavier and Deltarune? I love making people get deltarot syndrome like me.
+#### 3 juli Lowest point in the vacation yet?
+#### 2 juli I always think about what if I get hurt when home alone lol.
+#### 1 juli I'm gonna have a stroke. 🌞
+#### 30 juni Vacation! This better cause a change.
+#### 29 juni The prophecy of DELTARUNE feels so awesome when you say it in your head.
+#### 28 juni Reaching out to Eddie!
+#### 27 juni I could study... but it went fine.
+#### 26 juni I love procrascination with these great voorbeelden.
+#### 25 juni Just doing nothing( I played everything incremental tree game ), tests are even easier than expected!
+#### 24 juni Mark Trumpsucker Rutte (I mean for his task, fair enough)
+#### 23 juni Ben is letterlijk oranje
+#### 22 juni It's bushisms all over again!! ⚰️
+#### 21 juni Contemplation: twijfel is de duivel
+#### 20 juni Musical for me? (Probably not lol)
+#### 19 juni Bijles wiskunde is so real
+#### 18 juni Tommorow is the big finale, will it be croquettes??
+#### 17 juni Do I want this? Probably?? 😃
+#### 16 juni Project today, the presentation next week will probably be fine... like always...
+#### 15 juni (I really could've made that cool December theory) 
+#### 14 juni GUARDIAN is a banger though
+#### 13 juni Wooo! Let's goooo!!! Yeah!!! ⚽️
+#### 12 juni game design is tough.
+#### 11 juni Privacy rulez!
+#### 10 juni Richard Nixon my goat...
+#### 9 juni New Rimworld DLC, great timing! (Just hope it's not spaceships)
+#### 8 juni Snowgrave.
+#### 7 juni We will posess Noelle, remember that.
+#### 6 juni WITH HOPE CROSSED ON OUR HEARTS 🎻
+#### 5 juni Does the piano Wing ding my Gaster?
+#### 4 juni KRIS IS EVIL, I KNEW IT.
+#### 3 juni The knight... the roaring knight...
+#### 2 juni T.V. Time!
+#### 1 juni The firey prophecy of Vetzak en Dombo.
+#### 31 may Today I turned into a Penumbra coper 😔
+#### 30 may I should go do sports, so fun!!
+#### 29 may Yes, I love christian holidays !!
+#### 28 may 7 days... 7 days.... 7 DAYS.
+#### 27 may zoveel uitval 🔎
+#### 26 may Today I let the others take control... (it didn't end well)
+#### 25 may We gotta save Randy Random from a moofallo raid in RimWorld!!
+#### 24 may Napstablooking rn
+#### 23 may Where have my gymnastic skills gone, so pissed!
+#### 22 may The experiment has flopped. 🐛
+#### 21 may Deltarune is creeping near my feet, but at least it's twitching!
+#### 20 may history legend(s)
+#### 19 may Factory reset (but not for everyone else)
+#### 18 may I adore learning tests in 1 day. It's like my whole personality.
+#### 17 may Someone other than me played Deltarune, this is a once in a lifetime occurance!!!
+#### 16 may this day was really sad (funeral)...?
+#### 15 may TU = Don't pee at the wrong times.
+#### 14 may Going to school because I have to. 🤧
+#### 13 may Lost my ideas for school lol
+#### 12 may Mogging today. (Sigma)
+#### 11 may How is school fair! Let me be lazy!
+#### 10 may Sick day. But at least spamton sweepstakes!
+#### 9 may I was gonna pass out 😀
+#### 8 may Being sick exactly on the wrong day
+#### 7 may home alone
+#### 6 may Almost forgot that I actually have responsibilities
+#### 5 may oh yeah, deltarune news letter soon!!
+#### 4 may all Quarristers rock!
+#### 3 may All the way back for THAT!
+#### 2 may sick of swimming!
+#### 1 may Library day, it had to come 
+#### 30 april I got recognized! 😝
+#### 29 april Royal ranger galore
+#### 28 april Zynth farm planned, oh wait, A SALE.
+#### 27 april: I'm cooked (in a bad way)
+
+#  CHANGE OF FORMAT STARTS HERE
+
 ##### There'll be a pause for a while, which starts NOW 🔘📺 26/04/25
 ##### Hachoo! (first viveine) 🤧🌲💃 25/04/25
 ##### Breeding charts were made. 24/04/25
