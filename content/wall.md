@@ -6,6 +6,11 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 11 juli Another day of contemplation... 😑
+#### 10 juli Cambridge exams were baby steps.
+#### 9 juli I'm really scared for tommorow, I might fail, I literally barely studied lol.
+#### 8 juli Still have to message my pal!
+#### 7 juli It's about time to start studying...
 #### 6 juli I'm pro at EToH? I beat 2 ADVANCED towers today. Proudnessmaxing frfr.
 #### 5 juli I had so much fun in a VC today, they were beating the knight without the mantle. GOD i love people. 🗣
 #### 4 juli Xzavier and Deltarune? I love making people get deltarot syndrome like me.
