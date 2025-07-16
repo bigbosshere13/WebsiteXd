@@ -6,6 +6,11 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 16 juli Perfect timing to get into Ish's stuff! I might even be able to join the next one, although it might not be as big.
+#### 15 juli Tommorow. Me, RimWorld, 1 murderer ship. 🌟🌠
+#### 14 juli The Linguini death scene had me cackling brother.
+#### 13 juli *Young gentleman turns into an autist after not speaking to another human for 2 months...*
+#### 12 juli IMAGINE if I had a job.
 #### 11 juli Another day of contemplation... 😑
 #### 10 juli Cambridge exams were baby steps.
 #### 9 juli I'm really scared for tommorow, I might fail, I literally barely studied lol.
