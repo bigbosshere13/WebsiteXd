@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 20 juli Turns out all-you-can-eat places are actually delicious, AND CLEAN!
+#### 19 juli Damn, next vacship I should focus more on the defenses, I really did NOT know what I was doing that playthrough...
+#### 18 juli It's-a-me, Wario! Have a rotten day! 🍅🍅
+#### 17 juli I've also joined some other Minecraft events, including one of someone who claimed they knew it all!
 #### 16 juli Perfect timing to get into Ish's stuff! I might even be able to join the next one, although it might not be as big.
 #### 15 juli Tommorow. Me, RimWorld, 1 murderer ship. 🌟🌠
 #### 14 juli The Linguini death scene had me cackling brother.
