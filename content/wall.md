@@ -6,6 +6,11 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 25 juli De vlucht uit Falaise! (7.5/10, enorm voorspelbaar maar wel goed)
+#### 24 juli RimWorld should add more ways to train shooting for fuck sake. 👊
+#### 23 juli It's-A-Wario time!
+#### 22 juli The original DELTARUNE prophecy is so awesome, because LOVE WILL FIND ITS WAY TO THE GIRL 💗
+#### 21 juli Had a great time with the fellows over at the *RimWorld* discord server today.
 #### 20 juli Turns out all-you-can-eat places are actually delicious, AND CLEAN!
 #### 19 juli Damn, next vacship I should focus more on the defenses, I really did NOT know what I was doing that playthrough...
 #### 18 juli It's-a-me, Wario! Have a rotten day! 🍅🍅
