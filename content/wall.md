@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 29 juli Actually nightmares about after the vacation. 👀
+#### 28 juli I never thought listening to ADULTS talking about LIFE could be so entertaining!
+#### 27 juli Yeah... that's just 4 hours of Northernlion mario party watched in 1 day...
+#### 26 juli No response from anyone...
 #### 25 juli De vlucht uit Falaise! (7.5/10, enorm voorspelbaar maar wel goed)
 #### 24 juli RimWorld should add more ways to train shooting for fuck sake. 👊
 #### 23 juli It's-A-Wario time!
