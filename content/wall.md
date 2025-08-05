@@ -5,7 +5,13 @@ title = 'Wall'
 +++
 
 # _**This is the wall, every day I'll put something random on this page.**_
-
+#### 5 august The wall will end again for a while, do not fret though!
+#### 4 august First time in a while I go to bed with a bad feeling in my stomach, webst3r is a weird guy. Spider man.
+#### 3 august I should forget my phone to vacation as well, life is so much better... 
+#### 2 august I thought time only flied when you were having fun, 2022 was 3 years ago!!
+#### 1 august Deleted Discord! ⁉️
+#### 31 juli Nature is so much better, if only, if only.
+#### 30 juli Rimworld Dementia?
 #### 29 juli Actually nightmares about after the vacation. 👀
 #### 28 juli I never thought listening to ADULTS talking about LIFE could be so entertaining!
 #### 27 juli Yeah... that's just 4 hours of Northernlion mario party watched in 1 day...
