@@ -5,6 +5,25 @@ title = 'Wall'
 +++
 
 # _**This is the wall, every day I'll put something random on this page.**_
+
+#### 23 august Excitation over Minecraft exploitation!
+#### 22 august I guess August had a boring vacation too... 😓
+#### 21 august Energy overload, for the first time in a long while!
+#### 20 august Buurman Peter.
+#### 19 august "Could I go to bed earlier? I want this week to end!"
+#### 18 august "Kanker wijf!"
+#### 17 august I should just ride around town at home...
+#### 16 august Help! My father is a child! 🦷
+#### 15 august _*"De weduwe die Nederland redde"*_
+#### 14 august Rimworld + real people?
+#### 13 august Reminder: Get a diary instead of writing on this stupid wall.
+#### 12 august Reminder: Explain augustus chemistry anger (?)
+#### 11 august I never knew a man could have such patience.
+#### 10 august *I hate wasted potential man...*
+#### 9 august "Such wonderful people" 🤩
+#### 8 august Mech & I cried.
+#### 7 august Do I stalk??!!
+#### 6 august Friends MIGHT be the most addictive thing ever, attention, attention!!
 #### 5 august The wall will end again for a while, do not fret though!
 #### 4 august First time in a while I go to bed with a bad feeling in my stomach, webst3r is a weird guy. Spider man.
 #### 3 august I should forget my phone to vacation as well, life is so much better... 
