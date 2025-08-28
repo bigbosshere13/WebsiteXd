@@ -6,6 +6,11 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 28 august The day I'll go to the book shop!
+#### 27 august Damn, energy levels through the ROOF.
+#### 26 august Minecraft thing failed? Not really though.
+#### 25 august Just starin' at the ceilin'
+#### 24 august Doing nothing is not boring? Holy crap.
 #### 23 august Excitation over Minecraft exploitation!
 #### 22 august I guess August had a boring vacation too... 😓
 #### 21 august Energy overload, for the first time in a long while!
