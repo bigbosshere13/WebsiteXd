@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 1 september 1. MORE. DAY.
+#### 28 august Diary time!
+#### 28 august "You're just like your grandfather!"
+#### 28 august Bol.com is expensive!
 #### 28 august The day I'll go to the book shop!
 #### 27 august Damn, energy levels through the ROOF.
 #### 26 august Minecraft thing failed? Not really though.
