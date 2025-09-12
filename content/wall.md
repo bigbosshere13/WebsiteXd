@@ -6,6 +6,11 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 12 september im fucking it up
+#### 11 september Tommorow we'll hang out! Today was reading day, and another day of social dissapointment.
+#### 10 september All my art bros rise up!
+#### 9 september Good afternoon...
+#### 8 september What is she getting so excited about? Reading?
 #### 7 september _They aren't letting me on my register!_ 😉😉
 #### 6 september Damn, Netflix is addictive too? Everybody is in on this hype. 😎
 #### 5 september I love getting wet with my dudes, yo!
