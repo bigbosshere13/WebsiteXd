@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 16 september I reeking love other lads taking initiatives and me taking the benefit! 🥳💃🎈🎉🎊
+#### 15 september Doe (dan) maar!
+#### 14 september Me not being social here is embarrasing.
+#### 13 september Locking myself up for *fun* activities rn.
 #### 12 september im fucking it up
 #### 11 september Tommorow we'll hang out! Today was reading day, and another day of social dissapointment.
 #### 10 september All my art bros rise up!
