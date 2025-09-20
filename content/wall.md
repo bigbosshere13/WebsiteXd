@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 20 september This might be the first productive saturday in society of mankind.
+#### 19 september How one man can steal over everybody's attention, it's art!
+#### 18 september The universal switch to neocities? I could write texts on societal issues and everything... 🎈
+#### 17 september The social debate.
 #### 16 september I reeking love other lads taking initiatives and me taking the benefit! 🥳💃🎈🎉🎊
 #### 15 september Doe (dan) maar!
 #### 14 september Me not being social here is embarrasing.
