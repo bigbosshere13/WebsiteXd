@@ -6,6 +6,11 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 25 september Monster mash baby!
+#### 24 september Why are people coping so much nowadays??
+#### 23 september Am I an uninteresting person and why cant I be bothered to fix that although it might be my downfall?
+#### 22 september Hard work and high fever!
+#### 21 september Doki doki!
 #### 20 september This might be the first productive saturday in society of mankind.
 #### 19 september How one man can steal over everybody's attention, it's art!
 #### 18 september The universal switch to neocities? I could write texts on societal issues and everything... 🎈
