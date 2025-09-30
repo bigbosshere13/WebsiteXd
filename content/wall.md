@@ -6,6 +6,11 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 30 september How the days fly! *Bzz*
+#### 29 september Productive day without school! ... can it be?
+#### 28 september I fished in Terraria for 7 hours, and I hate myself! Why can't sources of entertainment just be consistent! 😓
+#### 27 september A great game always has something for you to do!
+#### 26 september This will be a productive weekend! (Written ironically on monday)
 #### 25 september Monster mash baby!
 #### 24 september Why are people coping so much nowadays??
 #### 23 september Am I an uninteresting person and why cant I be bothered to fix that although it might be my downfall?
