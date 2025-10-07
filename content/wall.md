@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 4 oktober Peaks o' yore
+#### 3 oktober Fair! ✅
+#### 2 oktober Hard work pays off? University train!
+#### 1 oktober 🩰
 #### 30 september How the days fly! *Bzz*
 #### 29 september Productive day without school! ... can it be?
 #### 28 september I fished in Terraria for 7 hours, and I hate myself! Why can't sources of entertainment just be consistent! 😓
