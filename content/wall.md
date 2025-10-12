@@ -6,6 +6,14 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 12 oktober So close to the bulwark!
+#### 11 oktober Toxic gossip train...
+#### 10 oktober Is tiredness an 💫*illusion*?
+#### 9 oktober Holy crap, I AM good at presentations.
+#### 8 oktober Stress is worth it!
+#### 7 oktober 😰
+#### 6 oktober Why don't they do crap?!
+#### 5 oktober This week is gonna SUCK, first productive week though!
 #### 4 oktober Peaks o' yore
 #### 3 oktober Fair! ✅
 #### 2 oktober Hard work pays off? University train!
