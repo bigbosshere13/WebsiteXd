@@ -6,6 +6,13 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 19 oktober Mentality, AND a good plan. Imagine if I could be like spiff?
+#### 18 oktober Mentality is key.
+#### 17 oktober I ran so far, yet got so far. But in the end, it doesn't even matter.
+#### 16 oktober The weeks of this website might be coming to an end! Sad??
+#### 15 oktober The sweat is getting to me dude, projects suck.
+#### 14 oktober Election time!
+#### 13 oktober I'm happy about that weekend.
 #### 12 oktober So close to the bulwark!
 #### 11 oktober Toxic gossip train...
 #### 10 oktober Is tiredness an 💫*illusion*?
