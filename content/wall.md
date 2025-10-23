@@ -6,6 +6,10 @@ title = 'Wall'
 
 # _**This is the wall, every day I'll put something random on this page.**_
 
+#### 23 oktober I actually have more mentality than most teens, although that might be wrong, it gives me confidence.
+#### 22 oktober Holy I can't do shit ever and what?
+#### 21 oktober ?
+#### 20 oktober NO valheim again.
 #### 19 oktober Mentality, AND a good plan. Imagine if I could be like spiff?
 #### 18 oktober Mentality is key.
 #### 17 oktober I ran so far, yet got so far. But in the end, it doesn't even matter.
